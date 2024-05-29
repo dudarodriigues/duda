@@ -1,1 +1,12 @@
-# duda
+# dudonica -Tenho 16 anos
+- sou estudante da Plataforma do ALura [Alura](https://www.alura.com.br)
+- legal
+- estudiosa
+- bonita
+- simpatica
+- engracada
+- babilonica
+- adora asmr
+- gosto de gatos
+- namorando meu namorado
+- amiga de gigi, tata, clacla, rara, lolo, cocoly 
